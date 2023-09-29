@@ -21,4 +21,4 @@ I'm always open to new connections and collaborations. Whether you want to chat 
 Thank you for visiting my GitHub profile, and I look forward to connecting with you.🌟
 
 Get in touch:
-* LinkedIn: http://www.linkedin.com/in/hariharanbas
+* Gmail: hariharanb64@gmail.com
